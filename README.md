@@ -1,0 +1,2 @@
+# halalfranchisinghub
+halalfranchisinghub.com
